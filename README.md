@@ -1,0 +1,1 @@
+-- Official license from (REAPL/INCE) for global brands.
